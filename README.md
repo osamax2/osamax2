@@ -43,7 +43,7 @@ Website: [basmacloud.com](https://basmacloud.com)
 
 ## 📫 How to Reach Me
 
-Email: [osama.alabaji@aazrak.com](mailto:osama.alabaji@aazrak.com)
+Email: [info@basmacloud.com](mailto:info@basmacloud.com)
 
 ---
 
